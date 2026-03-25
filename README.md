@@ -1,0 +1,3 @@
+# In short - piss off page to deter with obusification of other subdomains on this domain used for VPS/NAS/other privated services for me and clients.  
+
+## An as page said, ženo, daj mi rakije i pušku iz Domovinskog, netko pokušava upast na web majku li mu...  
